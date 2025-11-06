@@ -64,3 +64,8 @@ https://www.yuque.com/yuebanliangbian/xvvski/vruvox4r0tskcn1q?singleDoc# 《基�
 https://www.yuque.com/yuebanliangbian/xvvski/xmw891gmd4zzhvqg?singleDoc# 《实践任务》
 
 处理后视频----result.avi
+
+
+第四周
+https://www.yuque.com/yuebanliangbian/gi73fm/eitlmluw1fxy71ww?singleDoc# 《基础》
+https://www.yuque.com/yuebanliangbian/gi73fm/dl9h42zwxzly6mp7?singleDoc# 《基本内容》
